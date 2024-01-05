@@ -1,1 +1,0 @@
-# Ellipza-Technologies
